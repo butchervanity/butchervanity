@@ -3,3 +3,7 @@
 if im playing roblox feel free to join from profile (my joins are set to everyone.)
 <br>
 sometimes i make websites but im really bad at coding
+<br>
+whenever you think i'm afk feel free to whisper
+<br>
+gnb int please
