@@ -6,4 +6,4 @@ sometimes i make websites but im really bad at coding
 <br>
 whenever you think i'm afk feel free to whisper
 <br>
-gnb int please
+gnb int please i can't int first LOL
