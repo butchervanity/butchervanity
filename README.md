@@ -7,3 +7,5 @@ sometimes i make websites but im really bad at coding
 whenever you think i'm afk feel free to whisper
 <br>
 gnb int please i can't int first LOL
+<br>
+if i follow you on here i either wanna be friends or i just rlly like your ponies
