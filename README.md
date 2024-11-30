@@ -1,6 +1,5 @@
 ![image](https://github.com/user-attachments/assets/92f6fc76-90cd-4bf0-94dd-c83345ed5bcd)
 <p align="center">  
-<br>
   self proclaimed #1 hms undaunted captain fan. i run @captainhms 
 <br>
 if im playing roblox feel free to join from profile (my joins are set to everyone.)
