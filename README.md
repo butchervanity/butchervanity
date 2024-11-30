@@ -1,4 +1,4 @@
-![image](https://github.com/butchervanity/butchervanity/assets/82378861/104f9a0a-1833-4a21-ae2a-9646ae57d22c)
+![image](https://github.com/user-attachments/assets/92f6fc76-90cd-4bf0-94dd-c83345ed5bcd)
 <p align="center">
 if im playing roblox feel free to join from profile (my joins are set to everyone.)
 <br>
