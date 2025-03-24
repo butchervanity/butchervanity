@@ -14,9 +14,5 @@ whenever you think i'm afk feel free to whisper
 <br>
 •-————————⚓————————-•
 <br>
-gnb int please i can't int first LOL
-<br>
-•-————————⚓————————-•
-<br>
 if i follow you on here i either wanna be friends or i just rlly like your ponies please don't think anything of it/srs
 <br>
