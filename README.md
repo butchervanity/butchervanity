@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/9397f81f-2a50-4746-8927-214b070ceb2d)<h6 align="center"
+<h6 align="center"
 
 Status: KIA
 
@@ -12,10 +12,15 @@ Summary: Pilot's corpse was not found, but the wreckage was discovered with burn
 <h6 align='center'
 
 sv = semiverbal (not speaking, but will sometimes use emojis or say very few words)
+
 nv = nonverbal (i dont say anything at all)
+
 iwc = interact with care
+
 tc = touch comfort
+
 c+h = cuddles and hide
+
 (tc and c+h always apply no matter what, i only put them in my names because not everyone checks githubs..)
 
 <h5 align='center'
