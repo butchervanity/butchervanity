@@ -1,4 +1,4 @@
-<h6 align="center"
+![image](https://github.com/user-attachments/assets/9397f81f-2a50-4746-8927-214b070ceb2d)<h6 align="center"
 
 Status: KIA
 
@@ -9,18 +9,28 @@ Summary: Pilot's corpse was not found, but the wreckage was discovered with burn
 <h5 align='center'
 
 •-————————♡————————-•
+<h6 align='center'
+
+sv = semiverbal (not speaking, but will sometimes use emojis or say very few words)
+nv = nonverbal (i dont say anything at all)
+iwc = interact with care
+tc = touch comfort
+c+h = cuddles and hide
+(tc and c+h always apply no matter what, i only put them in my names because not everyone checks githubs..)
+
+<h5 align='center'
 
 i  like  cuddles  .  .  feel  free  to  cuddle  me  when  you  see  me  :)  i  wont  say  anything  because  im  shy  but  it  makes  me  happy
 
 
-if im playing roblox feel free to join from profile (my joins are set to everyone.)
+if  im  playing  roblox  feel  free  to  join  from  profile  (my  joins  are  set  to  everyone.)
 
 
-sometimes i make websites but im really bad at coding
+sometimes  i  make  websites  but  im  really   bad  at  coding
 
 
-whenever you think i'm afk feel free to whisper
+whenever  you  think  i 'm  afk  feel  free  to  whisper
 
 
-if i follow you on here i either wanna be friends or i just rlly like your ponies please don't think anything of it/srs
+if  i  follow  you  on  here  i  either  wanna  be  friends  or  i  just  rlly  like  your  ponies  please  don 't  think  anything  of  it /srs
 
