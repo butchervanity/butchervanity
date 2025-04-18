@@ -6,7 +6,7 @@ Summary: Pilot's corpse was not found, but the wreckage was discovered with burn
 
 ![image](https://github.com/user-attachments/assets/a7c238eb-2df5-4936-bb23-7046b5ddd2a6)
 
-<h5 align='center'
+<h4 align='center'
 
 •-————————♡————————-•
 <br>
