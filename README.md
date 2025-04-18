@@ -6,21 +6,21 @@ Summary: Pilot's corpse was not found, but the wreckage was discovered with burn
 
 ![image](https://github.com/user-attachments/assets/a7c238eb-2df5-4936-bb23-7046b5ddd2a6)
 
-<h4 align='center'
+<h5 align='center'
 
 •-————————♡————————-•
-<br>
+
 if im playing roblox feel free to join from profile (my joins are set to everyone.)
-<br>
+
 •-————————♡————————-•
-<br>
+
 sometimes i make websites but im really bad at coding
-<br>
+
 •-————————♡————————-•
-<br>
+
 whenever you think i'm afk feel free to whisper
-<br>
+
 •-————————♡————————-•
-<br>
+
 if i follow you on here i either wanna be friends or i just rlly like your ponies please don't think anything of it/srs
-<br>
+
