@@ -1,5 +1,5 @@
 <sub><p align="center">
-Status: KIA</sup>
+Status: KIA</sub>
 <p align="center">  
 Summary: Pilot's corpse was not found, but the wreckage was discovered with burn marks by the side of the missile launchers and a wing that was clearly destroyed by an angular impact (that is, damaged from spinning out of control). It's theorized the pilot lost control of the helicopter after suffering severe damage, evidenced by the lack of shielding and bullet-hole-less missile launchers. July 14th, 2044.
 
