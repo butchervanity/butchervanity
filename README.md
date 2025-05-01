@@ -34,6 +34,9 @@ c+h = cuddles and hide
 i  like  cuddles  .  .  feel  free  to  cuddle  me  when  you  see  me  :)  i  wont  say  anything  because  im  shy  but  it  makes  me  happy
 
 
+i will cuddle you if you have c+h in your name! buuuut ill probably only do it one time maxiumum unless you're alone most of the time cause the second i start seeing more than one person i get nervous :') sorry
+
+
 whenever  you  think  i 'm  afk  feel  free  to  whisper
 
 
