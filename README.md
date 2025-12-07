@@ -4,9 +4,12 @@
   
 </div>
 
+<img width="1918" height="996" alt="image" src="https://github.com/user-attachments/assets/e075068f-e489-4147-b850-49c46fa1de56" />
+
 <h6 align="center"
 
-<img width="1918" height="996" alt="image" src="https://github.com/user-attachments/assets/31e0e94b-f3bd-4b35-bfa5-8b38331a510c" />
+
+THEY SAY MY HUNGER'S A PROBLEM.
 
 <h5 align='center'
 
