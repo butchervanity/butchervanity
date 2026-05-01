@@ -50,5 +50,8 @@ if  im  playing  roblox  feel  free  to  join  from  profile  (my  joins  are  s
 sometimes  i  make  websites  but  im  really   bad  at  coding
 
 
-if  i  follow  you  on  here  i  either  wanna  be  friends  or  i  just  rlly  like  your  ponies  please  don 't  think  anything  of  it /srs
+if  i  follow  you  on  here  i  either  wanna  be  friends  or  i  just  rlly  like  your  ponies  please  don 't  think  anything  of  it /srs  
+
+
+i  start  getting  really  anxious  around  people  sometimes  don't  mind  it  ^_^"
 
