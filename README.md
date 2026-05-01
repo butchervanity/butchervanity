@@ -35,7 +35,7 @@ c+h = cuddles and hide
 i  like  cuddles  .  .  feel  free  to  cuddle  me  when  you  see  me  :)  i  wont  say  anything  because  im  shy  but  it  makes  me  happy
 
 
-i will cuddle you if you have c+h in your name! buuuut ill probably only do it one time maximum unless you're alone most of the time cause the second i start seeing more than one person i get nervous :') sorry. i also tend to think people find me annoying
+i  will  cuddle  you  if  you  have  c+h  in  your  name!  buuuut  ill  probably  only  do  it  one  time  maximum  unless  you're  alone  most  of  the  time  cause  the  second  i  start  seeing  more  than  one  person  i  get  nervous  :')  sorry.  i  also  tend  to  worry  that  people  find  me  unpleasant  to  be  around  im  a  CHUD  with  no  friends  
 
 
 whenever  you  think  i 'm  afk  feel  free  to  whisper
@@ -53,5 +53,5 @@ sometimes  i  make  websites  but  im  really   bad  at  coding
 if  i  follow  you  on  here  i  either  wanna  be  friends  or  i  just  rlly  like  your  ponies  please  don 't  think  anything  of  it /srs  
 
 
-i  start  getting  really  anxious  around  people  sometimes  don't  mind  it  ^_^"
+i  start  getting  really  really  anxious  around  people  sometimes  don't  mind  it  ^_^"
 
