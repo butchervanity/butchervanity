@@ -46,9 +46,6 @@ whenever  you  think  i 'm  afk  feel  free  to  whisper
 please..  try  to  be  nice  to  me  :(  i  take  a  lot  of  things  to  heart.  i  also  may  misinterpret  what  you  say  so  im  sorryr......
 
 
-if  im  playing  roblox  feel  free  to  join  from  profile  (my  joins  are  set  to  everyone.)
-
-
 sometimes  i  make  websites  but  im  really   bad  at  coding
 
 
