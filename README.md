@@ -20,10 +20,6 @@ THEY SAY MY HUNGER'S A PROBLEM.
 •-————————♡————————-•
 <h6 align='center'
 
-sv = semiverbal (not speaking, but will sometimes use emojis or say very few words)
-
-nv = nonverbal (i dont say anything at all)
-
 iwc = interact with care
 
 tc = touch comfort
