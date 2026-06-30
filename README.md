@@ -42,9 +42,6 @@ whenever  you  think  i 'm  afk  feel  free  to  whisper
 please..  try  to  be  nice  to  me  :(  i  take  a  lot  of  things  to  heart.  i  also  may  misinterpret  what  you  say  so  im  sorryr......
 
 
-sometimes  i  make  websites  but  im  really   bad  at  coding
-
-
 if  i  follow  you  on  here  i  either  wanna  be  friends  or  i  just  rlly  like  your  ponies  please  don 't  think  anything  of  it /srs  
 
 
